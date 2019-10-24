@@ -2,6 +2,8 @@
 
 ![Alpine All Paws](./assets/IMG_4367.jpeg)
 
+_Henri, Calvin, and Ripley_
+
 ### Dog walking, visiting, feeding and basic training services available in Alpine Estates and surrounding areas!
 
 ## Services
@@ -10,10 +12,15 @@ Heading out for the day but your dog wants to play? Available for a free introdu
 
 ![Alpine All Paws](./assets/IMG_4365.JPG)
 
+_Sparky_
+
 ![Alpine All Paws](./assets/IMG_4366.JPG)
 
-![Alpine All Paws](./assets/IMG_4369.JPG)
+_Harrison and Petey_
 
+![Alpine All Paws](./assets/IMG_4375.JPG)
+
+_Ruby_
 
 ## Availability
 
