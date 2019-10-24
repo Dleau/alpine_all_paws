@@ -6,7 +6,7 @@
 
 ## Services
 
-Heading out for the day but your dog wants to play? I can make myself available for a free introduction. References include referrals from Cranston police officers and RI State Troopers. Last minute is ok! Dogs with special needs will be accommodated - walk up, leash secure premium dog stroller provides fresh air and stimulation. Experience with puppies, blind and limited mobility pups. Animals love me and I love them back!
+Heading out for the day but your dog wants to play? Available for a free introduction. References include referrals from Cranston police officers and RI State Troopers. Last minute is ok! Dogs with special needs will be accommodated - walk up, leash secure premium dog stroller provides fresh air and stimulation. Experience with puppies, blind and limited mobility pups. Animals love me and I love them back!
 
 ![Alpine All Paws](./assets/IMG_4365.JPG)
 
